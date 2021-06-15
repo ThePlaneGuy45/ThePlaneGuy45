@@ -1,3 +1,3 @@
 ello
 
-just an idiot who codes some thingys
+just an idiot who codes some things
